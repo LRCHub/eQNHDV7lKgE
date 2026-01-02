@@ -1,0 +1,91 @@
+# JENNIE – You & Me
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+You know I gotcha
+You know that
+I got you like that
+Ain't nobody gonna
+have your back
+like the way I do
+You love it just say you do
+You know you got me
+Everything you do
+Everything you did
+Everything I wish I was with
+Makes me feel alright
+I'm just saying so
+I really like it
+Nothing in the world
+can make me feel
+the way you do the things you do
+I really like it
+Nothing in the world
+can make me feel
+the way you do the things you do
+I love you and me
+Dancing in the moonlight
+Nobody can see
+It's just you and me tonight
+I love you and me
+Dancing in the moonlight
+Nobody can see
+It's just you and me tonight
+Look at you now look at me
+How you ever ever gonna find
+someone like this
+Look at you now look at me
+How you ever ever gonna find
+someone like this
+You're the reason
+my heart skips drops
+Just a little touch
+my world stops
+Finally I know that you're mine
+I don't want to fall
+Don't wanna play
+this game of love oh eh oh
+There's nowhere to hide
+I really like it
+Nothing in the world
+can make me feel
+the way you do the things you do
+I really like it
+Nothing in the world
+can make me feel
+the way you do the things you do
+I love you and me
+Dancing in the moonlight
+Nobody can see
+It's just you and me tonight
+I love you and me
+Dancing in the moonlight
+Nobody can see
+It's just you and me tonight
+Look at you now look at me
+How you ever ever gonna find
+someone like this
+Look at you now look at me
+How you ever ever gonna find
+someone like this
+Under the moonlight
+All in the mood like
+You should put a ring on it
+I do I do vibes
+Don't get the blue light
+We getting nasty
+I found my new ride
+Here in the backseat
+Love so good
+I bet he be cashing out
+I got him feeling that rush
+like he passing out
+Couldn't handle these curves
+so he crashing now
+Beep beep with the way
+I can back it out
+I love you and me
+I love you and me
+I love you and me
+```
